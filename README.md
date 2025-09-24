@@ -107,5 +107,3 @@ Our team provides expert guidance, professional installation, and comprehensive 
 
 ---
 
-### Meta Description  
-Trusted backbone cabling service provider, installation partner, and network cabling testing contractor in Georgia. J3K Technologies delivers reliable, scalable, and future-ready network solutions.
